@@ -1,4 +1,4 @@
-# 
+# elite bot sniper NFT scripts é o melhor bot sniper NFT scripts com análise de raridade e análise de volume. Seguro, confiável e otimizado para estratégias de sniper, negociação e
 
 
 
